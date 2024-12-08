@@ -29,7 +29,7 @@ https://mehexgh.github.io/year2k/
 
 https://mehexgh.github.io/year2k-v2/
 
-For more Checkout my Instagram @_m_e_h_e_b_u_b_
+For more Checkout my Instagram [_m_e_h_e_b_u_b_](https://www.instagram.com/_m_e_h_e_b_u_b_/) 
 
 <!---
 - 💞️ I’m looking to collaborate on 
