@@ -15,7 +15,7 @@
 
 *Coolberg:* https://4-webers-reimagine-round1.vercel.app/
 
-*SH Event Management:* link- https://mehexgh.github.io/SH-Event-Management-/
+*SH Event Management:* https://mehexgh.github.io/SH-Event-Management-/
 
 *Polaroid 3d camera:* https://mehexgh.github.io/Polaroid-3d-camera/
 
